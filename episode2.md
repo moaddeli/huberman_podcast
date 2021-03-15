@@ -365,18 +365,18 @@ apogenin is a fairly potent estrogen inhibitor
 - avoid : women who want to keep their estrogen levels high
 - take that into consideration : for men
 
+# Links
 
-
-https://profiles.stanford.edu/jamie-zeitzer
+https://profiles.stanford.edu/jamie-zeitzer  
 https://profiles.stanford.edu/david-spiegel
 
 https://www.headspace.com/
 
 10 Min Yoga Nidra Script (no cost)
-https://www.youtube.com/watch?v=M0u9GST_j3s&t=48s
+https://www.youtube.com/watch?v=M0u9GST_j3s&t=48s  
 35 Min Yoga Nidra Script (no cost)
-https://www.youtube.com/watch?v=FroVfmOtaps&t=0s
+https://www.youtube.com/watch?v=FroVfmOtaps&t=0s  
 Research Supported Hypnosis Scripts (no cost)
-https://reverihealth.com/​
+https://reverihealth.com/​  
 Independent Supplement Research Site (no cost)
 https://examine.com/
